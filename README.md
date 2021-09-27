@@ -1,1 +1,1 @@
-# www.boldoutlook.com
+# boldoutlook.com
